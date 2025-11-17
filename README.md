@@ -1,1 +1,1 @@
-Phyisics student @ Università di Milano-Bicocca
+PhD student in Phyisics @ Università di Milano-Bicocca
